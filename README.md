@@ -2,5 +2,5 @@
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning... nothing in special
 - 💞️ I’m looking to collaborate on... nothing now
-I speak spanish too
+- I speak spanish too
 
